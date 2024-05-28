@@ -21,3 +21,4 @@ Chi Sao
 Chi Sao is Known as Sticking hands, it's a wing chun training exercise designed to develop close range combat skills. In close range combat, your ability to see an incoming strike a punch and react by reflex is greatly diminished. Which is where the skills developed through chi sau apply.
 Pak Sau Chi Sau
 The purpose for pak sau chi sau is to train mid-range. Wing Chun is know for it's close quarters combat, However you need to get to that range first. The man Sao or asking hand, and Pak Sao hand come into play even more. The emphasis here is on the touch and go reflexes and applying forward energy. 
+file:///Users/ikaali/Desktop/wingchun.html
